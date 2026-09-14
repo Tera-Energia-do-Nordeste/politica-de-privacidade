@@ -1,0 +1,1 @@
+# poliica-privacidade-tera
